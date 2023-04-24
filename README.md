@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I am currently working on my own projects ✍🏻💻<br>🌱 I am currently learning to be a great developer<br>👯 I am looking to collaborate on projects, looking for work<br>💬 Ask me about my projects<br>📫 How to contact me:<br>😄 Pronouns: gamingsoftwarepereira@gmail.com<br>⚡ Fun fact: sony very smiley
+🔭 I am currently working on my own projects ✍🏻💻<br>🌱 I am currently learning to be a great developer<br>👯 I am looking to collaborate on projects, looking for work<br>💬 Ask me about my projects<br>📫 How to contact me:<br>😄 contact me: gamingsoftwarepereira@gmail.com<br>⚡ Fun fact: sony very smiley
 
 
 ## 🌐 Socials:
