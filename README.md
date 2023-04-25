@@ -1,4 +1,4 @@
-# 💫✍Hellow World!
+# 💫✍Hello World!
 
 ![FullStack](https://media.tenor.com/UttC4AITYR4AAAAd/full-stack-developer.gif)
 
